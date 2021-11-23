@@ -1,2 +1,2 @@
 ### davet
-bu ne ola ki? ;)
+bu ne ola ki? ;))
